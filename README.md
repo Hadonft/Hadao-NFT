@@ -1,1 +1,1 @@
-# Hado-NFT
+HADO (HDO) is a utility token developed for the HADO NFT marketplace. HADO also offers 4% rewards in BNB for holding and more importantly HADO stands for Help Art Deliver Opportunity. Not only does HADO offer an open low fee NFT marketplace, but we will reach out and market to artists of differing abilities to instruct and encourage them to monetize their talents on HADO.
